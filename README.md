@@ -11,7 +11,8 @@
 
 <h4 align="center">
   
-[twitter](https://x.com/shihokys/)  ,   [atabook](https://shihophrenic.straw.page/)     
+[twitter](https://x.com/shihokys)  ,   [atabook](https://lobotami.atabook.org)  ,   [strawpage](https://shihophrenic.straw.page)
 
-  
+<img src="https://gifcity.carrd.co/assets/images/gallery38/10a9d5bc.png?v=e3c0bc0f" height="30"><br>
 
+<img src="https://file.garden/aVeeSScxzTDMl3ac/cooltext499330133945149.gif" height="50">
